@@ -2,5 +2,3 @@
 Reto de MA1001b.501
 
 EDUARDO MEDINA MEZA WAS HERE
-
-i hate niggers
